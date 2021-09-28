@@ -1,2 +1,3 @@
 # verboden-hash-voor-kanker-patienten-in-nederland
-nederlandse dwangmedicatie methadone en heroine
+
+nederlandse dwangmedicatie van methadone en heroine
